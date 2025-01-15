@@ -1,6 +1,6 @@
 # 🚀 StarMusk AI Token (StarMuskAI)
 
-![StarMuskAI Banner](https://via.placeholder.com/1200x400?text=StarMusk+AI+Token)
+![StarMuskAI Banner](https://i.hizliresim.com/2l7lo9d.png)
 
 ---
 
