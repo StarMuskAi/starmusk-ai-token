@@ -1,4 +1,4 @@
-🚀 StarMusk AI Token (STARAI)
+🚀 StarMusk AI Token (StarMuskAI)
 
 📖 About StarMusk AI
 StarMusk AI (StarMusk) is an innovative blockchain-based token designed to bring a revolutionary approach to artificial intelligence-driven projects. Our mission is to create a vibrant and engaged community while ensuring transparency and reliability.
